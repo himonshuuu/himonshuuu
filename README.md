@@ -1,1 +1,1 @@
-
+A day that marked the beginning of my journey in this world. Since then, life has been a mix of experiences, challenges, and lessons that shaped who I am today. Every year adds new memories and stories that define my path forward.
