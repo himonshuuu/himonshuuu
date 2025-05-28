@@ -1,4 +1,3 @@
-
 I'm Himanshu, a hobbyist tech enthusiast from India.  
 I enjoy building side projects, I use arch btw :D, and tweaking my system setup just for fun.
 
