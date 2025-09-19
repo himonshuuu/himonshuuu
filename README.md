@@ -1,1 +1,7 @@
-A day that marked the beginning of my journey in this world. Since then, life has been a mix of experiences, challenges, and lessons that shaped who I am today. Every year adds new memories and stories that define my path forward.
+I'm Himanshu, a hobbyist tech enthusiast from India.  
+I enjoy building side projects, I use arch btw :D, and tweaking my system setup just for fun.
+
+Mostly into backend development, system customization, and learning new tools.  
+You'll usually find me coding late at night, breaking things, and figuring out how they work.
+
+Always experimenting. Always learning.
